@@ -1,1 +1,6 @@
-# jaine3
+- 
+-  🔭 Atualmente estou trabalhando em.nada
+- 🌱 Atualmente estou aprendendo ...pensamento computacional
+- 👯 Estou procurando colaborar em ter notas boas
+- 💬 Pergunte-me sobre .series
+- 📫 Como entrar em contato comigo email jaine.kuns@escola.pr.gov
